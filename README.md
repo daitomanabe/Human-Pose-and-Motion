@@ -370,36 +370,55 @@ https://www.youtube.com/watch?v=eRGAB4QBS6U&
 
 [https://youtu.be/eRGAB4QBS6U](https://youtu.be/eRGAB4QBS6U)
 
+
 **Bibiography**
 
 Golan Levin Audiovisual Software Art: A Partial History,9 May 2009 
+
 http://www.flong.com/texts/essays/see_this_sound_old/#case2
-**THE SPACE OF THE FALL, On Dance, Architecture, Bodily Perspective and Gravity**
+
+THE SPACE OF THE FALL, On Dance, Architecture, Bodily Perspective and Gravity
+
 http://home.hccnet.nl/j.w.nijenhuis/artikel/TheSpaceoftheFallonDancea.html
+
 Etienne-Jules Marey archive
  [http://www.expo-marey.com/ANGLAIS/home.html](http://www.expo-marey.com/ANGLAIS/home.html)
- **Eadweard Muybridge Works Online** http://www.artcyclopedia.com/artists/muybridge_eadweard.html
- UCBerkeley “ HUMAN FACTORS AND EXISTENTIAL PHENOMENOLOGY”
- http://goldberg.berkeley.edu/courses/S06/IEOR-QE-S06/images.html
- MOMA Collection
- https://www.moma.org/collection/works/49635?artist_id=1681
- human-pose-detection by samim
- https://medium.com/@samim/human-pose-detection-51268e95ddc2
- light-painting-history
- http://lightpaintingphotography.com/light-painting-history/
- edgerton digital collections 
- https://edgerton-digital-collections.org
- **ラバン身体動作表現理論について**
- https://staff.aist.go.jp/toru-nakata/shintairon.html
- a brief history of motion capture in the movies
-http://www.ign.com/articles/2014/07/11/a-brief-history-of-motion-capture-in-the-movies
 
+
+Eadweard Muybridge Works Online** http://www.artcyclopedia.com/artists/muybridge_eadweard.html
+
+UCBerkeley “ HUMAN FACTORS AND EXISTENTIAL PHENOMENOLOGY”
+
+http://goldberg.berkeley.edu/courses/S06/IEOR-QE-S06/images.html
+
+
+MOMA Collection
+
+https://www.moma.org/collection/works/49635?artist_id=1681
+
+human-pose-detection by samim
+
+https://medium.com/@samim/human-pose-detection-51268e95ddc2
+
+light-painting-history
+
+http://lightpaintingphotography.com/light-painting-history/
+
+edgerton digital collections 
+
+https://edgerton-digital-collections.org
+
+ラバン身体動作表現理論について
+
+https://staff.aist.go.jp/toru-nakata/shintairon.html
+
+a brief history of motion capture in the movies
+
+http://www.ign.com/articles/2014/07/11/a-brief-history-of-motion-capture-in-the-movies
 
 https://twitter.com/kcimc/status/1004428337597505536
 
-
 [https://twitter.com/kcimc/status/1004428337597505536](https://twitter.com/kcimc/status/1004428337597505536)
-
 
 https://twitter.com/kcimc/status/1004427682883366912
 
